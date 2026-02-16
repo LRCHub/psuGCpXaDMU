@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "サイド・トゥ・サイド",
+  "base_artist": "Ariana Grande",
+  "createdAt": "2026-02-16T08:00:40.608925Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Side To Side Ft. Nicki Minaj",
+      "artist": "Ariana Grande",
+      "has_synced": false,
+      "path": "select/pl_01_Side_To_Side_Ft._Nicki_Minaj_Ariana_Grande.txt"
+    }
+  ]
+}

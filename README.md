@@ -1,0 +1,61 @@
+# Ariana Grande – サイド・トゥ・サイド
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I've been here all night
+I've been here all day
+And boy
+You've got to be walkin' side to side
+I'm talkin' to ya
+See you standing over there with your body
+Feelin' like I wanna rock with your body
+And we don't gotta think 'bout nothing
+I'm coming at ya
+Cuz I know you got a bad reputation
+Doesn't matter
+Cuz you give me temptation
+And we don't gotta think 'bout nothing
+These friends, keep talkin' way too much
+Say I should give you up
+Can't hear them tough cuz I I I I I I I
+I've been here all night
+I've been here all day
+And boy
+You've got to be walkin' side to side
+(repeat x 2)
+Been tryna hide it
+Baby what is it gonna hurt
+If they don't know
+Makin' everybody think we be solo
+Just as long as you know you got me
+And boy I got ya
+Cuz tonight I'm makin' deals with the devil
+And I know it's gonna get me in trouble
+Just as long as you know you got me
+NICKI RAP:
+It's the new style
+With the fresh type of flow
+Wrist Icicle
+Ride dick bicycle
+Come through yo
+Get you this type of blow
+If you wanna Minaj
+I got a tricycle
+All these bitches flows is my mini me
+Body smoking
+So they call me young Nicki Chimney
+Rappers in they feelings
+Cause they feeling me
+("murda")
+I give zero fucks
+And I got zero chill in me
+Kissing me
+Copped the blue box that say Tiffany
+Curry with the shot
+Just tell 'em to call me Stephanie
+Gun pop
+Then I make my gum pop
+I'm the queen of rap
+Young Ariana run pop
+```
